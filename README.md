@@ -1,3 +1,5 @@
+![Uploading tumblr_mgevu1QnTr1qis6bco1_r3_500.gif…]()
+
 hi im gyu!!
 
 ˏˋ°•*⁀➷
