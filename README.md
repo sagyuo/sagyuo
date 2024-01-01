@@ -1,4 +1,4 @@
-![Uploading tumblr_mgevu1QnTr1qis6bco1_r3_500.gif…]()
+![tumblr_mgevu1QnTr1qis6bco1_r3_500](https://github.com/sagyuo/sagyuo/assets/154012950/e170114c-48f9-4d80-8fc2-a1d39e0a80ea)
 
 hi im gyu!!
 
