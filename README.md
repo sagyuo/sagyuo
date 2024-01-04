@@ -1,8 +1,6 @@
-![tumblr_mgevu1QnTr1qis6bco1_r3_500](https://github.com/sagyuo/sagyuo/assets/154012950/e170114c-48f9-4d80-8fc2-a1d39e0a80ea)
-
 hi im gyu!!
 
-ˏˋ°•*⁀➷
+![be4dbb2c](https://github.com/sagyuo/sagyuo/assets/154012950/c602d71c-1198-4385-9590-b409cba0f439)
 
 plz dont copy my ponies, or cover my pony bc its just annoying !!
 soft/light inspo is fine <3
@@ -10,7 +8,10 @@ soft/light inspo is fine <3
 i am mainly by spawn, but check my characters to help find where i am !
 i don't accept friend requests if we've never talked, i hope we share some interests !! :D
 
-╰┈➤cuddle + hide is welcomed !! <3 INT is fine but i may be offtab, afk so please mind that i am not ignoring you ^_^
+cuddle + hide is welcomed !! <3 INT is fine but i may be offtab, afk so please mind that i am not ignoring you ^_^
+
+![10a9d5bc](https://github.com/sagyuo/sagyuo/assets/154012950/4b934b05-8021-43a7-8c62-bd1bcd02058f)
 
 more additonal info and interests can be found in my carrd ! (linked) 
 
+![d71b77bd](https://github.com/sagyuo/sagyuo/assets/154012950/23d78844-cb27-44fa-9f0b-eadfbea7019f)
