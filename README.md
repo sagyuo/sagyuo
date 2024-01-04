@@ -4,6 +4,7 @@ hi im gyu!!
 
 plz dont copy my ponies, or cover my pony bc its just annoying !!
 soft/light inspo is fine <3
+i have like 50 styles so if its drastically different its just me being indecisive T_T
 
 i am mainly by spawn, but check my characters to help find where i am !
 i don't accept friend requests if we've never talked, i hope we share some interests !! :D
