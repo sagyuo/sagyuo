@@ -18,6 +18,7 @@ more additonal info and interests can be found in my carrd ! (linked)
 ![0065-bunnies](https://github.com/sagyuo/sagyuo/assets/154012950/27f86274-4234-4d2a-8111-0380c7362b8d)
 ![tumblr_pc38rqsNC61u4h28eo6_250](https://github.com/sagyuo/sagyuo/assets/154012950/4e941568-f8cf-4da4-85cf-d5e1dea69c3e)
 ![tumblr_inline_pgcxqsBVfX1v11djx_500](https://github.com/sagyuo/sagyuo/assets/154012950/d7ba8bb6-0bea-4d9e-bc23-b884b17ba085)
+
 ![pixelbank](https://github.com/sagyuo/sagyuo/assets/154012950/4ad7576e-7bb1-4935-be27-99f978b599a5)
 ![nyaa_2](https://github.com/sagyuo/sagyuo/assets/154012950/b6d1ce02-d8f9-465c-ab22-f10b5006f462)
 ![sunnyapples](https://github.com/sagyuo/sagyuo/assets/154012950/4586f5ef-3db0-4220-9301-44a7fe39d204)
