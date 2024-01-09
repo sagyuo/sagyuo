@@ -5,12 +5,13 @@ hi im gyu!!
 plz dont copy my ponies, or cover my pony bc its just annoying !!
 soft/light inspo is fine <3
 i have like 50 styles so if its drastically different its just me being indecisive T_T
-pony copiers defenders dni, you can tell when its inspired and copied idc, its obvi ur just taking ur friends side and its embarrassing.
+pony copiers/copier defenders DNI!
+
 
 i am mainly by spawn, but check my characters to help find where i am !
 i don't usually accept friend requests if we've never talked, i hope we share some interests !! :D
 
-cuddle + hide is welcomed !! <3 INT is fine but i may be offtab, afk so please mind that i am not ignoring you ^_^
+i have like 2 friends so feel free to C+H :P if ur interacting w me and im not respodning im probs afk/offtab so send me a whisper ! 
 
 ![be4dbb2c](https://github.com/sagyuo/sagyuo/assets/154012950/c602d71c-1198-4385-9590-b409cba0f439)
 
